@@ -1,4 +1,4 @@
-# EronRexha
+# Eron-Rexha
 
 ```                                                                                                                                                                                                          
                                                                          
